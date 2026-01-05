@@ -1,1 +1,3 @@
-# .github
+# *It's Never Too Late — Prepare for the End | Master Shi Heng Yi's Teaching on Mortality*
+## *Discover the spiritual wisdom of preparing for life's end while you're still alive. Learn to release attachments, resolve karma, and find liberation through acceptance with Master Shi Heng Yi's profound teachings. An inspirational WebStory on spiritual readiness, forgiveness, legacy & peace. Discover how to prepare for life’s final chapter — with love, not fear.* [More details…](https://spiritualkhazaana.com/web-stories/its-never-too-late-prepare-for-the-end/)
+## #PrepareForTheEnd #ShaolinWisdom #ShiHengYi #MortalityAcceptance #SpiritualWisdom #LetGo #KarmicConnections #SelfDiscovery #InnerPeace #PersonalTransformation #FindYourTruth #ReleaseAttachment #ForgiveYourself #LiveFullyNow #DeepMeaning #SpiritualTeaching #AcceptChange #FindFreedom #ConsciousLiving #EnlightenmentPath #UnknottingKarma #MindBodySpirit #TransformYourLife #AncientWisdom #BePresent
